@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MISHA35656
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me you can't reach me
